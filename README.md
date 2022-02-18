@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @sujay-koushki
+- 👋 Hi, I’m @sujay-Sharma
 - 👀 I’m interested in Travelling,digital Marketing
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on crypto 
